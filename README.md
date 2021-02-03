@@ -2,3 +2,5 @@
 Primeiro contato com tecnologia e desenvolvimento
 Sejam bem vindos, desde já agradeço a ajuda.
 Abraços
+Conto com todos vocês.
+Obrigado
